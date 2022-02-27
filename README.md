@@ -6,3 +6,5 @@ ________________________________________________________________________________
 1. Pie-Bot acting weird - Probably caused by trainer being faulty, will look into : *PRIORITY*
 2. Pie-Bot not making any sense : **See 1.**
 ____________________________________________________________________________________________________________________________________________________________________________
+my snapchat : @gurseerit_singh
+or @gusto
